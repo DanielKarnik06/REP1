@@ -1,1 +1,1 @@
-Co si ti zasraní parchanti doprdele o sobě myslej, že je to zasranej lunapark nebo co? Vlastnoručně jim rostřílím prdel na sračky - Paulie Lombardo
+Co si ti za***ní parchanti do***ele o sobě myslej, že je to zas***ej lunapark nebo co? Vlastnoručně jim rostřílím p***l na sr***y - Paulie Lombardo
